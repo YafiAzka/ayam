@@ -1,1 +1,6 @@
 # ayam
+
+
+
+#bantuin wir
+#wkwkwkwkkw
